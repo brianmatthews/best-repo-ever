@@ -7,7 +7,5 @@ There's a sign on the lawn.
 Kitty's owners are all gone.
 With a purr she waits not a minute more.
 
-
-
 As the runway drew close
 The sardines were all froze
